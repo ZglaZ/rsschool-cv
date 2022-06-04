@@ -1,9 +1,11 @@
 # Artem Ryzhko
+![IMG_2149](https://user-images.githubusercontent.com/106739716/172007926-52d97ce7-11b2-42fe-a24d-c329a22488d4.jpg)
 
 ## Contacts
 
-### Mail: luigi-007@mail.ru
-### Telegram: @zglaz
+#### Mail: luigi-007@mail.ru
+#### Telegram: @zglaz
+#### Discord: Artem Ryzhko(@zglaz)
 
 ## About me:
 
