@@ -2,8 +2,8 @@
 
 ## Contacts
 
-Mail: luigi-007@mail.ru
-Telegram: @zglaz
+### Mail: luigi-007@mail.ru
+### Telegram: @zglaz
 
 ## About me:
 
